@@ -1,2 +1,2 @@
-# NG
-DOTA2 TEAM Never Goodbye
+# T.A
+DOTA2 TEAM THE AWAKENED
